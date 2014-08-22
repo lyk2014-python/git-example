@@ -1,0 +1,1 @@
+Kamp yoğun geçiyor galiba :)
